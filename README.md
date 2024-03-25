@@ -1,4 +1,4 @@
-# [The Solomon G-String - TheDuchy](img/solomon-g-string)
+## [The Solomon G-String - TheDuchy](img/solomon-g-string)
 
 [](img/Solomons-G-String.jpg)
 These could also be used as a kind of rope chastity belt or method to tease
