@@ -1,6 +1,6 @@
 ## [The Solomon G-String - TheDuchy](img/solomon-g-string)
 
-[](img/Solomons-G-String.jpg)
+![](img/Solomons-G-String.jpg)
 These could also be used as a kind of rope chastity belt or method to tease
 your partner. The name comes from the key feature, called the “Solomon Bar”,
 something created by repeating a [Cored Square Knot](https://www.theduchy.com/cored-square-knot/)
